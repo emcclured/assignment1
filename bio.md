@@ -4,6 +4,8 @@ I live in the Seattle, WA area. I have a MBA from Colorado State University and 
 
 Interests/Hobbies: photography, travel, writing, fitness, volunteering, and dogs.
 
+I have traveled all over the world.
+
 Programming Background
 
 CS 161/162
